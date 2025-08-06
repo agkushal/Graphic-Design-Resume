@@ -1,2 +1,2 @@
 # Graphic-Design-Resume
-Resume
+Kushal Agrawal Resume
